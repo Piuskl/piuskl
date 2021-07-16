@@ -14,4 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-<h1>HI everyone my name is Kakeeto Pius Lawrence</h1>
+<pre>
+Fuck everyone
+
+Fuck the toys.
+
+Fuck the cops.
+
+Fuck the presido.
+
+Fuck  everyone!!!
+</pre>
